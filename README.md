@@ -1,2 +1,5 @@
 # vishwaves.github.io
-my webiste :)
+my website :)
+
+under dev, so pls hold your horses. thanks.
+P.S. come back later for a c00k13333.
